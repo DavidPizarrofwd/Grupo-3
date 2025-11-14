@@ -1,1 +1,1 @@
-## DUIG EL DUIIIII YA NO QUIERO TENER ETICA
+## DUIG EL DUIIIII YA NO QUIERO TENER ETICA tengoooooooooooooooooooooooooon pajaaaaaaaaaaaaaaaaaa no quiero hacer nadaaaaaaaaa
